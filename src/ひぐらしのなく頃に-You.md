@@ -43,5 +43,5 @@ You
 参考
 -----
 
-- <http://dic.nicovideo.jp/a/(ひぐらしのなく頃に)>
+- <http://dic.nicovideo.jp/a/you(ひぐらしのなく頃に)>
 
