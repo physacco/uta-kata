@@ -58,3 +58,53 @@ fairy tale
 - **灯火**: ともしび。１ ともした火。あかり。とうか。ともし。「―がともる」「風前の―」「心の―」 ２ 平安時代、大学寮の学生に、勉学のための灯油代として与えた奨学金。
 - **過ち**: あやまち。１ まちがい。失敗。「―を恐れず試みる」 ２ 犯してしまった罪。過失。「―を償う」 ３ 男女間の不倫。不義。 ４ けが。負傷。 「―すな。心して降(お)りよ」〈徒然・一〇九〉
 
+
+English
+--------
+
+    I remembered a dream
+    I chased while I was young
+    Singing sweetly and faintly
+    A sadness of bright green
+    My fairytale
+
+    I knew an eternity
+    That would never end
+    A story of two
+    No longer told
+
+    Leaving behind one kiss
+    Where are you going?
+    Holding close to you a lamp
+    You disappear into the forest
+    In the dark
+
+    A familiar figure is walking
+    Ahead in the distance
+    Your home is far away
+    You wont make it back
+    Your fairytale
+
+    The eternity of my dream is sealed
+    The mistake hidden deeply
+    The trail back fades away
+    and I see you no longer
+    Goodbye...
+
+    Leaving the misty forest
+    Where are you going?
+    You wave to me once
+    and head off to tomorrow
+
+    I fall in love with you
+    and eternity ends
+    The joy and pain 
+    of living begins
+    In the light
+
+
+参考
+-----
+
+- <http://www.animelyrics.com/jpop/kalafina/fairytale.htm>
+
