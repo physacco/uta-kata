@@ -61,3 +61,8 @@ happy endings
     ねぇ そんな気がしてるんだ
     ずっと
 
+
+参考
+-----
+
+- <http://www.bilibili.tv/video/av379333/>
