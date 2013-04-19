@@ -42,7 +42,7 @@ STRAIGHT JET
     終わらないの… 祈り、届いて
     あの雲を突き抜けて
 
-    そう Don\'t be afraid
+    そう Don't be afraid
     迷わず、想いきり飛べばいい だいじょうぶ☆
     Please tell me いつでも もっと話をして
     I believe you 孤独な夜もこえていける
@@ -56,3 +56,8 @@ STRAIGHT JET
 
     あの空で逢えるから…
 
+
+参考
+-----
+
+- <http://www.bilibili.tv/video/av183801/>
