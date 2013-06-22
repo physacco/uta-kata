@@ -97,7 +97,7 @@ LEVEL5-Judgelight-
     3. 真上から1を見たような模様。
 
 
-参考
+参照
 -----
 
 - <http://www.youtube.com/watch?v=JOLh_3_MaMk>

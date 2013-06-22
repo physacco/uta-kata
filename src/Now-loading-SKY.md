@@ -60,7 +60,7 @@ Now loading...SKY!!
     オリジナルが欲しくて 作戦立てましたよ
 
 
-参考
+参照
 -----
 
 - <http://www.youtube.com/watch?v=uaOwQUMNneQ>

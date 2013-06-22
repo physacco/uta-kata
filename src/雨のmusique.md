@@ -39,7 +39,7 @@
     だれも知らない私が ここにいるのよ
 
 
-参考
+参照
 -----
 
 - <http://www.youtube.com/watch?v=JJhSmWHBoII>

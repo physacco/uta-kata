@@ -61,7 +61,7 @@ METEOR☆IMPACT
     めーるめるめるめるめるめるめ〜
 
 
-参考
+参照
 -----
 
 - <http://www.youtube.com/watch?v=m7Yk_Qm8FEw>

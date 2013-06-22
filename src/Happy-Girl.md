@@ -65,7 +65,7 @@ Happy Girl
     Do you Do you trust me? Someday...please, say“Yes”
 
 
-参考
+参照
 -----
 
 - <http://www.youtube.com/watch?v=00VKZ-lbRCE>

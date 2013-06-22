@@ -75,7 +75,7 @@ happy endings
     3. 山道などで、木の枝などを折って道しるべとすること。また、そのもの。
 
 
-参考
+参照
 -----
 
 - <http://www.bilibili.tv/video/av379333/>

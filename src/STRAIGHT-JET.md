@@ -57,7 +57,7 @@ STRAIGHT JET
     あの空で逢えるから…
 
 
-参考
+参照
 -----
 
 - <http://www.bilibili.tv/video/av183801/>

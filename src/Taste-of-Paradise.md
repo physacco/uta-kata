@@ -96,7 +96,7 @@ Taste of Paradise
     4. 風になびかせる。ひらめかす。「旗を―・す」
 
 
-参考
+参照
 -----
 
 - <http://www.bilibili.tv/video/av64020/>

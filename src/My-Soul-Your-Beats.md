@@ -79,7 +79,7 @@ My Soul,Your Beats!
 - **幾億**: いくおく。
 
 
-参考
+参照
 -----
 
 - <http://www.youtube.com/watch?v=3Au0bSKPjz4>

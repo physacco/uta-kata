@@ -46,7 +46,7 @@
     恋のビギナーなんです(T_T)
 
 
-参考
+参照
 -----
 
 - <http://www.bilibili.tv/video/av254803/>

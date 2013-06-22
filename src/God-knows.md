@@ -62,7 +62,7 @@ God knows...
     いまふたりに God bless...
 
 
-参考
+参照
 -----
 
 - <http://www.youtube.com/watch?v=WWB01IuMvzA>

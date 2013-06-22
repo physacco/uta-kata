@@ -63,7 +63,7 @@ secret base〜君がくれたもの〜 (10 years after Ver.)
     最高の思い出を…
 
 
-参考
+参照
 -----
 
 - <http://www.youtube.com/watch?v=XaFPFzW4KcA>

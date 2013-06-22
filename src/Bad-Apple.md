@@ -46,7 +46,7 @@ Bad Apple!!
     重い目蓋を　開けたのならば　すべて壊すのなら　黒になれ！！！
 
 
-参考
+参照
 -----
 
 - <http://dic.nicovideo.jp/a/bad%20apple!!%20feat.%20nomico>

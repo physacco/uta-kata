@@ -79,7 +79,7 @@ Resuscitated Hope
     2. 本質・真相などを見定める。「現実を―・える」
 
 
-参考
+参照
 -----
 
 - <http://www.youtube.com/watch?v=i8wghCdMncU>

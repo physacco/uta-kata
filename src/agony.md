@@ -100,7 +100,7 @@ agony
     5. 男女の間を仲介(ちゅうかい)する。手引きをする。
 
 
-参考
+参照
 -----
 
 - <http://www.youtube.com/watch?v=VUKsJPmCJcg>

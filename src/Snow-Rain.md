@@ -63,7 +63,7 @@ Snow Rain
 - **旅路**: たびじ。旅をして行く道筋。また、旅の途中。道中。「―に就く」「死出の―」 A journey.
 
 
-参考
+参照
 -----
 
 - <http://www.youtube.com/watch?v=TaKxtTpt770>

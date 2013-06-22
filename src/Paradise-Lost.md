@@ -80,7 +80,7 @@ Paradise Lost
 - **聖なる**: せいなる。 holy; sacred.
 
 
-参考
+参照
 -----
 
 - <https://ja.wikipedia.org/wiki/ティル・ナ・ノーグ>

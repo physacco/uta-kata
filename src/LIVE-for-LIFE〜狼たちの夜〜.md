@@ -66,7 +66,7 @@ LIVE for LIFE〜狼たちの夜〜
     この温もりを 守りたい 明日も明後日も
 
 
-参考
+参照
 -----
 
 - <http://www.bilibili.tv/video/av166259/>
